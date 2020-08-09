@@ -11,7 +11,6 @@ Bom, quando eu crio repositórios aqui no GitHub, eles são normalmente relacion
 
 # 🌎 Me encontre em outras redes!
 Eu não realmente fico de olho no GitHub, então eu serei mais lento para respostas!
-- Você pode me seguir no [Twitter](https://twitter.com/deeeesky), uma rede que eu também não fico muito ativo, mas meu tempo de resposta por lá é muito menor!
 - Você pode entrar no meu [Discord](https://discord.gg/YPcb5BJ), um servidor meu que eu fico ativo na maioria do tempo e irei te responder na hora, basicamente!
 - No meu [Reddit](https://reddit.com/u/deeeesky)!
 - A minha [Twitch](https://twitch.tv/deskyy)!
