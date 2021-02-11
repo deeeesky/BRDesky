@@ -11,7 +11,6 @@ Bom, quando eu crio repositórios aqui no GitHub, eles são normalmente relacion
 
 # 🌎 Me encontre em outras redes!
 Eu não realmente fico de olho no GitHub, então eu serei mais lento para respostas!
-- Você pode entrar no meu [Discord](https://discord.gg/YPcb5BJ), um servidor meu que eu fico ativo na maioria do tempo e irei te responder na hora, basicamente!
-- No meu [Reddit](https://reddit.com/u/deeeesky)!
-- A minha [Twitch](https://twitch.tv/deskyy)!
-- Ou o meu [Youtube](https://www.youtube.com/channel/UCNtEDdtZgA9ClWYB_VoKO2Q?view_as=subscriber)! 
+- Você pode me mandar mensagem no Discord, **Desky#2725**.
+- A minha [Twitch](https://twitch.tv/deskyy), pelas mensagens diretas, já que eu não faço lives.
+- Ou o meu [Youtube](https://www.youtube.com/channel/UCNtEDdtZgA9ClWYB_VoKO2Q?view_as=subscriber) que é muito inovador. 
