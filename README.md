@@ -10,7 +10,7 @@ But I do open some repositories once in a while, when I start a project all of a
 When I start a repository here, its more related to Discord bots in JavaScript. But I'm trying to get some free time in my life so I can explore more of the programming world.
 
 # 🌎 How to reach me?
-Since I'm not that active in GitHub, sending me a message through here would be like a gambling, for the exception that instead of money, you are trying to get some kind of answer. But, I'm active in the following platforms:
+Since I'm not that active in GitHub, sending me a message through here would be like a gambling, but instead of money, you are trying to get some kind of answer from me. But, I'm active in the following platforms:
 - You can send a message in my Discord, **Desky#2725**.
 - I'm also active on [**Twitter!**](https://twitter.com/braziliandesky)
 - You can also try my [**Instagram.**](https://instagram.com/brazilian.desky)
